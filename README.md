@@ -1,1 +1,1 @@
-INFO2201 Notes:
+INFO2201 Notes
